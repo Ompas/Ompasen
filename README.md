@@ -1,0 +1,2 @@
+# Ompasen
+Penghasilan
